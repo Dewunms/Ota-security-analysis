@@ -251,4 +251,4 @@ https://www.linkedin.com/in/adewunmi-popoola-30302a164/
 
 ---
 
-*Thesis grade: Submitted January 2026. Evaluated as technically strong with thorough execution.*
+*Thesis grade: Submitted March 2026. Evaluated as technically strong with thorough execution.*
